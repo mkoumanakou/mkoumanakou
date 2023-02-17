@@ -36,13 +36,13 @@ III. Stop-motion animation
 
 IV. Εκπαιδευτικά σενάρια – Εισηγήσεις σε πρακτικά συνεδρίων (με κριτές)
 
-Κουμανάκου Μ.Α. και Παπαγιαννακοπούλου Ε. (2020), Αυτοσχεδιάζοντας με την όπερα στο 5ο Πανελλήνιο Συνέδριο «Εκπαίδευση στον 21ο αι.: Ανάπτυξη της κριτικής σκέψης, της δημιουργικότητας και της καινοτομίας»: https://www.researchgate.net/publication/351424332_Autoschediazontas_me_ten_opera & https://ekedisy.gr/praktika-4oy-panellinioy-synedrioy-ekpaideysi-ston-21o-aiona-anaptyxi-tis-kritikis-skepsis-tis-dimioyrgikotitas-kai-tis-kainotomias/
+1. Κουμανάκου Μ.Α. και Παπαγιαννακοπούλου Ε. (2020), Αυτοσχεδιάζοντας με την όπερα στο 5ο Πανελλήνιο Συνέδριο «Εκπαίδευση στον 21ο αι.: Ανάπτυξη της κριτικής σκέψης, της δημιουργικότητας και της καινοτομίας»: https://www.researchgate.net/publication/351424332_Autoschediazontas_me_ten_opera & https://ekedisy.gr/praktika-4oy-panellinioy-synedrioy-ekpaideysi-ston-21o-aiona-anaptyxi-tis-kritikis-skepsis-tis-dimioyrgikotitas-kai-tis-kainotomias/
 
-Παπαγιαννακοπούλου Ε. και Κουμανάκου Μ.Α. (2020), Δίνοντας πνοή στην ορχήστρα στο 5ο Πανελλήνιο Συνέδριο «Εκπαίδευση στον 21ο αι.: Ανάπτυξη της κριτικής σκέψης, της δημιουργικότητας και της καινοτομίας»: https://www.researchgate.net/publication/351424082_Dinontas_pnoe_sten_orchestra & https://ekedisy.gr/praktika-4oy-panellinioy-synedrioy-ekpaideysi-ston-21o-aiona-anaptyxi-tis-kritikis-skepsis-tis-dimioyrgikotitas-kai-tis-kainotomias/
+2. Παπαγιαννακοπούλου Ε. και Κουμανάκου Μ.Α. (2020), Δίνοντας πνοή στην ορχήστρα στο 5ο Πανελλήνιο Συνέδριο «Εκπαίδευση στον 21ο αι.: Ανάπτυξη της κριτικής σκέψης, της δημιουργικότητας και της καινοτομίας»: https://www.researchgate.net/publication/351424082_Dinontas_pnoe_sten_orchestra & https://ekedisy.gr/praktika-4oy-panellinioy-synedrioy-ekpaideysi-ston-21o-aiona-anaptyxi-tis-kritikis-skepsis-tis-dimioyrgikotitas-kai-tis-kainotomias/
 
-Κουμανάκου Μ.Α. (2014), Πρόγραμμα οπτικοακουστικής έκφρασης μαθητών ΣΤ΄ τάξης και project πρακτικής εφαρμογής του στο 11ο Πανελλήνιο Συνέδριο της Επιστημονικής Ένωσης Εκπαιδευτικών Πρωτοβάθμιας «Η εκπαίδευση στην εποχή των ΤΠΕ»:  https://www.openbook.gr/11o-panellinio-synedrio-eeep-dtpe/
+3. Κουμανάκου Μ.Α. (2014), Πρόγραμμα οπτικοακουστικής έκφρασης μαθητών ΣΤ΄ τάξης και project πρακτικής εφαρμογής του στο 11ο Πανελλήνιο Συνέδριο της Επιστημονικής Ένωσης Εκπαιδευτικών Πρωτοβάθμιας «Η εκπαίδευση στην εποχή των ΤΠΕ»:  https://www.openbook.gr/11o-panellinio-synedrio-eeep-dtpe/
 
-Κουμανάκου Μ.Α. (2014), Διδακτική προσέγγιση ψηφιακής αφήγησης σε διακρατικό πρόγραμμα πρωτοσχολικής ηλικίας στο 1ο Πανελλήνιο Συνέδριο eTwinning «Αξιοποίηση των τεχνολογιών της πληροφορίας και της επικοινωνίας στα συνεργατικά προγράμματα»:  https://www.etwinning.gr/2016-07-20-10-10-24
+4. Κουμανάκου Μ.Α. (2014), Διδακτική προσέγγιση ψηφιακής αφήγησης σε διακρατικό πρόγραμμα πρωτοσχολικής ηλικίας στο 1ο Πανελλήνιο Συνέδριο eTwinning «Αξιοποίηση των τεχνολογιών της πληροφορίας και της επικοινωνίας στα συνεργατικά προγράμματα»:  https://www.etwinning.gr/2016-07-20-10-10-24
 
 
 V. 2 εκπαιδευτικά παιχνίδια (είναι αναρτημένα σε παρουσίαση με θέμα «Παρουσίαση δυνατοτήτων του WebEx και παιδαγωγικής αξιοποίησής τους στο μάθημα της Θεατρικής Αγωγής» στους παρακάτω υπερσυνδέσμους: http://tiny.cc/aug4vz & 
@@ -69,27 +69,27 @@ https://education.actionaid.gr/dunamikoi-ekpaideutikoi/ekpaideutiko-uliko/taxidi
 
 VII. Παρουσιάσεις 
 
-Παρουσίαση δυνατοτήτων του WebEx και παιδαγωγικής αξιοποίησής τους στο μάθημα της Θεατρικής Αγωγής: http://tiny.cc/aug4vz & 
+1. Παρουσίαση δυνατοτήτων του WebEx και παιδαγωγικής αξιοποίησής τους στο μάθημα της Θεατρικής Αγωγής: http://tiny.cc/aug4vz & 
 https://blogs.sch.gr/mkoumanakou/tilekpaideysi/webex/
 
-Δημιουργική Αξιοποίηση Ψηφιακών Τεχνολογιών και Διαδικτυακών Εφαρμογών: http://tiny.cc/xtg4vz & https://blogs.sch.gr/mkoumanakou/psifiaki-afigisi/
+2. ημιουργική Αξιοποίηση Ψηφιακών Τεχνολογιών και Διαδικτυακών Εφαρμογών: http://tiny.cc/xtg4vz & https://blogs.sch.gr/mkoumanakou/psifiaki-afigisi/
 
-Θεατρική Αγωγή στο Δημοτικό: περιγραφική αξιολόγηση βάσει των σχετικών Οδηγών του Εκπαιδευτικού από το ΙΕΠ:
+3. Θεατρική Αγωγή στο Δημοτικό: περιγραφική αξιολόγηση βάσει των σχετικών Οδηγών του Εκπαιδευτικού από το ΙΕΠ:
 http://tiny.cc/6ug4vz & https://blogs.sch.gr/mkoumanakou/perigrafiki-axiologisi/
 
-Περιγραφική αξιολόγηση Εργαστηρίων Δεξιοτήτων στο Δημοτικό & στο Γυμνάσιο:
+4. Περιγραφική αξιολόγηση Εργαστηρίων Δεξιοτήτων στο Δημοτικό & στο Γυμνάσιο:
 http://tiny.cc/8ug4vz & https://blogs.sch.gr/mkoumanakou/ergastiria-dexiotiton/axiologisi-mathiton-rion/
 
-Δημιουργία ιστολογίου στο ΠΣΔ από εκπαιδευτικούς Θεατρικής Αγωγής: 
+5. Δημιουργία ιστολογίου στο ΠΣΔ από εκπαιδευτικούς Θεατρικής Αγωγής: 
 http://tiny.cc/1ug4vz & https://blogs.sch.gr/mkoumanakou/tpe/dimioyrgia-istologiou/
 
-Εμπόδια στην εκπαίδευση των παιδιών παγκοσμίως: 
+6. Εμπόδια στην εκπαίδευση των παιδιών παγκοσμίως: 
 http://tiny.cc/xug4vz & https://blogs.sch.gr/mkoumanakou/dimokratia/isotita-fylon/emfyles-diakriseis-stin-prosvasi-stin-ekpaideysi/
 
-Σεξουαλική Διαπαιδαγώγηση και Πρόληψη Σεξουαλικής Κακοποίησης:
+7. Σεξουαλική Διαπαιδαγώγηση και Πρόληψη Σεξουαλικής Κακοποίησης:
 http://tiny.cc/5ug4vz & https://blogs.sch.gr/mkoumanakou/prostasia-anilikon/sexoyaliki-agogi/
 
-Δημιουργία & τήρηση εκπαιδευτικών ιστολογίων ως δημόσιων αποθετηρίων 
+VIII. Δημιουργία & τήρηση εκπαιδευτικών ιστολογίων ως δημόσιων αποθετηρίων 
 
 -	https://blogs.sch.gr/mkoumanakou/: αποθετήριο για τους εκπαιδευτικούς ΠΕ91 – Θεατρικής Αγωγής Βόρειας Ελλάδας (2020-2022) 
 -	https://digitalstories2014.wordpress.com/: ψηφιακός φάκελος επιτευγμάτων του eTwinning έργου Digital Stories στα αγγλικά (2013-2014) 
